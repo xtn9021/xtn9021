@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xtn9021
 - 👀 I’m interested in Technology
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+-
 - 📫 You can Reach Me through Discord
 - My Discord
 - _xt._n_#7305
